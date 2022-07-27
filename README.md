@@ -1,1 +1,1 @@
-# SusGalaxy
+# Sus Galaxy
